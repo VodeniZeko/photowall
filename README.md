@@ -1,4 +1,4 @@
-FINT THE PROJECT AT   =>    https://photowall-547fe.web.app/   
+FIND THE PROJECT AT   =>    https://photowall-547fe.web.app/   
 
 
 
